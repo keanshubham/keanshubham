@@ -18,7 +18,6 @@ I'm Kean Shubham, a passionate student based in Hyderabad, pursuing a BTech degr
 
 Let's connect and discuss all things cybersecurity! You can find me on various platforms:
 
-- 📧 Email: [Your Email]
 - 💼 LinkedIn: https://www.linkedin.com/in/keanshubham/
 
 
